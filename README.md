@@ -10,7 +10,7 @@
 
 - ⚡ Fun fact **I love bus sims (a lot) and also I do other games as well hehe :D**
 
-- 📄 Know about my experiences **[https://drive.google.com/file/d/1URmjKwJK6p3ZbYViCnN_R9fXlpCXxRGP/view?usp=drive_link](https://drive.google.com/file/d/1URmjKwJK6p3ZbYViCnN_R9fXlpCXxRGP/view?usp=drive_link)**
+- 📄 Know about my experiences **[here!](https://drive.google.com/file/d/1URmjKwJK6p3ZbYViCnN_R9fXlpCXxRGP/view?usp=drive_link)**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
