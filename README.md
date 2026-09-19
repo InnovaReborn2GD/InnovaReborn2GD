@@ -7,7 +7,7 @@
 
 - 📫 How to reach me **atharimuhammad1207@gmail.com**
 
-- ⚡ Fun fact **I love bus sims (a lot) and also I do other games as well**
+- ⚡ Fun fact **I love bus sims (a lot) and also I do other games as well hehe :D**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
